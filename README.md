@@ -1,3 +1,3 @@
 ОГО! РОСТ НА ГИТЕ 
 СОЗДАЁТ МОДЫ НА БРАВЛ
-ТЕЛЕГА: https://t.me/rostchann
+ТЕЛЕГА: https://t.me/rostchannel2
