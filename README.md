@@ -1,3 +1,2 @@
-ОГО! РОСТ НА ГИТЕ 
-СОЗДАЁТ МОДЫ НА БРАВЛ
-ТЕЛЕГА: https://t.me/rostchannel2
+Telegram: @RostMoment
+Discord: rostmoment#0
